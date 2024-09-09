@@ -1,0 +1,2 @@
+Gustavson, D.E., Panizzon, M.S., Kremen, W.S., Reynolds, C.A., Pahlen, S., Nygaard, M., Wod, M., Catts, V.S., Lee, T., Gatz. M., & Franz, C.E for the IGEMS Consortium (2021). Genetic and environmental influences on semantic verbal fluency across midlife and later life. Behavior Genetics, 51, 99-109. doi: 10.1007/s10519-021-10048-w
+https://cesr.usc.edu/documents/igems/Gustavson2021_Article_GeneticAndEnvironmentalInfluen.pdf
